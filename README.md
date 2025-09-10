@@ -26,7 +26,7 @@ DONT FORGET TO FORK 🍴 & STAR 🌟 REPO😇
   
 --- 
 
-<a><'https://files.catbox.moe/ldg6o2.jpg'/></a>
+<a><https://files.catbox.moe/ldg6o2.jpg'/></a>
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
